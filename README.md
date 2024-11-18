@@ -1,0 +1,2 @@
+# repositoriii
+ информатика
